@@ -2,7 +2,7 @@
 
 In 2024, Coin Master continues to captivate players worldwide with its exciting gameplay and incredible rewards. If you're a fan of this wildly popular mobile game, you're in for a treat. The opportunity to get **free spins** is more accessible than ever before, allowing you to unlock the game’s full potential without spending a dime. In this article, we will guide you on how to take advantage of the **free Coin Master spins** and much more, while delving into the latest updates and strategies to maximize your enjoyment of the game.
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 ### What is Coin Master?
 
